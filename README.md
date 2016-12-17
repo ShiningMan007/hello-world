@@ -10,3 +10,5 @@ Last semester, I would not have this energy or spent my time to accomplish homew
 The other wonderful thing is... Actually, I don't want to say this, it's really difficult to get along with a girl... I don't 
 know whether I can achieve this, what I can do now may be try best.. But to be honestly, keeping a un-determining relationship 
 is really exhausting...
+
+Add some new content,
